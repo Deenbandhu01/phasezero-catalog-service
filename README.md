@@ -28,7 +28,8 @@ In future I will update this project by adding
 5. and many more
 
 Thank you for visiting my profile
-Keep in touch I will update this project in the future by adding some more features.
+Keep in touch ( https://www.linkedin.com/in/deen-bandhu-13255b223/ )
+I will update this project in the future by adding some more features.
 
     
     
